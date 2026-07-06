@@ -1,4 +1,4 @@
-# 
+# Ultimato 1inch trading bot predefinições for Mac OS | Premium 1inch trading bot predefinições for PC Windows. Featuring análise de momento and estratégia de reversão à média — optimized for maximum performance.
 
 
 
